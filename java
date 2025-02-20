@@ -1,2 +1,2 @@
 I now understand
-Class recording is bae
+Because class recording is bae!
